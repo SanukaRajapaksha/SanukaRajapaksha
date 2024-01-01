@@ -1,5 +1,4 @@
-dfjdfjkdlf jdkfdkf
-fdggcdg
+this is sanuka rajapaksha profile. i am more like influvento follow  new technologies
 <!--
 **SanukaRajapaksha/SanukaRajapaksha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
